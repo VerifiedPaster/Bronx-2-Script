@@ -1,2 +1,6 @@
 # Bronx-2-Script
-Free Bronx 2 script
+
+
+@ Tren.cc
+if you like this project feel free to join my discord for more of this we offer alot of stuff for free.
+discord.gg/hoodchairs
